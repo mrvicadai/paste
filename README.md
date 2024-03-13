@@ -1,3 +1,3 @@
 # paste
 
-[print me](https://drive.google.com/drive/folders/1yocfMKTvgUvgYZU7KzM8JMVQV_tYcWk0?usp=drive_link)
+[Print Me](https://drive.google.com/file/d/1SVr_PcLsHWE5VVa3Qt4Y6Le81g4Fkrje/view?usp=sharing)
